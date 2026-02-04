@@ -1,3 +1,1 @@
-what to do.. whaat to do... 
-
 https://www.tumblr.com/earnedfate/806477986077573120/hai-hai-can-u-do-mafioso-discord-layout?source=share
